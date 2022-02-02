@@ -1,0 +1,1 @@
+# All-Chrome-Extension-Privacy-Policy
